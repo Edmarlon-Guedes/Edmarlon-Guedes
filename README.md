@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Ednarlon Guedes 😁
+## Bem-vindo(a) ao perfil do Edmarlon Guedes 😁
 
  <div>
    <a href="https://github.com/ednarlon-guedes">
